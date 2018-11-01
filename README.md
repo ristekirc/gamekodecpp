@@ -1,2 +1,2 @@
 # gamekodecpp
-Game buat nguji seberaba Peka loe ~
+Game buat nguji seberapa Peka sama Pacar Loe ~!~!~
